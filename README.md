@@ -1,1 +1,1 @@
-# exemplar-prototype-jen-2
+# exemplar-prototype-jp
